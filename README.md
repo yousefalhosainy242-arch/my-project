@@ -1,4 +1,4 @@
-<img width="578" height="632" alt="image" src="https://github.com/user-attachments/assets/69c72157-ab2f-41f6-9809-3c347ef8613d" />
+
 # Hi, I'm Yousef 👋
 
 🎯 14 y/o from Egypt, based in Qatar  
